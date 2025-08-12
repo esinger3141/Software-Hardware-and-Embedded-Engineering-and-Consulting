@@ -5,6 +5,7 @@
 
 **Location:** New York, NY  
 **Email:** email@ericsinger.com
+**Website:** http://ericsinger.com
 
 ---
 
